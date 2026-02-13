@@ -72,5 +72,5 @@ Growing toward roles involving:
 
 ## Contact
 
-LinkedIn: [linkedin.com/in/steven-cain-3b735728a]  
-Email: [stevencain509@gmail.com]
+LinkedIn: linkedin.com/in/steven-cain-3b735728a/  
+Email: stevencain509@gmail.com
